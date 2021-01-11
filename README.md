@@ -1,1 +1,2 @@
-Parick Dougan 2
+Parick Dougan
+douganp@oregonstate.edu
